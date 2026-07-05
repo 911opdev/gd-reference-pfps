@@ -1,3 +1,1 @@
-basically
-this is everyone's pfp for the Discord-MC-Chat mod for Minecraft.
-also, you aren't supposed to be here.
+so basically, this is a custom pfp of every single member of my Minecraft server, because we use a cracked launcher and our sick ass skins don't show up. this is basically useless for any living person that ISN'T on the server 
